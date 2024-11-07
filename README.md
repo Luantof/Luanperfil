@@ -6,9 +6,8 @@ Meu nome é Luan
 - Estou desenvolvendo um projeto no github
 - Utilizo esses espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
- ### Você entrar em contato (https://github.com/user-attachments/assets/d90e50fd-5364-4897-83af-834bdf02cdfe)
+ ### Você entrar em contato (Luan.ulrich.guimaraes@escola.pr.gov.br)
 
-![](https://tenor.com/pt-BR/view/athletico-cap-paranaense-athletico-paranaense-club-athletico-paranaense-gif-27563301)
-
+![](https://media1.tenor.com/m/rSebZ1oB2zIAAAAd/athletico-cap.gif)
 
 
